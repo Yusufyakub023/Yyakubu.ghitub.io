@@ -1,1 +1,1 @@
-# Yyakubu.ghitub.io
+https://Yusufyakub023.github.io/simple-website-template
